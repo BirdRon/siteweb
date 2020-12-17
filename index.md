@@ -1,17 +1,3 @@
-```markdown
-Syntax highlighted code block
+*congratulations, if you're seeing this website, then you have* **SUCESSFULLY** *hacked* **THE FBI!!!!!!!!!**
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
+![image](https://raw.githubusercontent.com/BirdRon/siteweb/super-hacker-edit/eggdog_dance.gif)
