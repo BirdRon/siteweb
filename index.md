@@ -2,8 +2,4 @@
 
 ![image](https://raw.githubusercontent.com/BirdRon/siteweb/gh-pages/eggdog_dance.gif)
 
-"Protected by the FBI...$250,000...17 years...oh shit...in jail" - Chloe 2013
-
-"Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail""Protected by the FBI...$250,000...17 years...oh shit...in jail" - Chloe 2021, based on an excerpt from "How To: Start a Lawnmower in a Single Pull," 2013
-
-"I hope you get lock jaw retard" - Alex 2021
+"Protected by the FBI... $250,000... 17 years... oh shit... in jail..." - Chloe 2013
